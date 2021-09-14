@@ -82,9 +82,6 @@
 
 <p>Economics SL:- <a href="https://chat.whatsapp.com/IDNeIu3sFf4HjpzFdKfzlL">https://chat.whatsapp.com/IDNeIu3sFf4HjpzFdKfzlL</a></p>
 
-<p>Psychology HL:- <a href="https://chat.whatsapp.com/KxViNLJ0CyrCP97AhZvQpS">https://chat.whatsapp.com/KxViNLJ0CyrCP97AhZvQpS</a></p>
-
-<p>Psychology SL:- <a href="https://chat.whatsapp.com/HkEZqfGIN2DDWfh9SGRZ7U">https://chat.whatsapp.com/HkEZqfGIN2DDWfh9SGRZ7U</a></p>
 
 
 
